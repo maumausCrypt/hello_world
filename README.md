@@ -1,2 +1,3 @@
 # hello_world
 It's a repository that I share some of my ideas to the world...
+I am just a chill guy that likes to play some musical instruments, like guitar, country viola, violin. I also like to do some latte art on my free time.
